@@ -1,3 +1,21 @@
+## <a href="https://shorten.is/nano">Betnano SİTESİNE GİRİŞ İÇİN TIKLAYIN</a>
+
+<a href="https://shorten.is/nano"><img src="https://s7.gifyu.com/images/SX5dx.gif"></a>
+
+| %100 Hoşgeldin Spor Bonusu | %100 + 50 Freespin Slot Hoşgeldin Bonusu |
+|----------|----------|
+| [![Betnano 1](https://i.ibb.co/w6Ms0n3/0-spor-hosgeldin.jpg)](https://shorten.is/nano) | [![Betnano 2](https://i.ibb.co/SmhNkkF/ho-geldin-slot.jpg)](https://shorten.is/nano) |
+
+| Günlük 1 Milyon TL Çekim İmkanı | %15 Çevrimsiz Spor Bonusu |
+|----------|----------|
+| [![Betnano 3](https://i.ibb.co/1sqbDKg/gates.jpg)](https://shorten.is/nano) | [![Betnano 4](https://i.ibb.co/Smxn3qW/gates-of-bn.jpg)](https://shorten.is/nano) |
+
+| Yüksek Kazanç Oranı | Hızlı Çekim İmkanı |
+|----------|----------|
+| [![Betnano 5](https://i.ibb.co/jwxwCmC/sweet.jpg)](https://shorten.is/nano) | [![Betnano 6](https://i.ibb.co/SKbx3w4/Masalar-Canli-Casino-Mobil-Pop-Up.jpg)](https://shorten.is/nano) |
+
+<a href="https://shorten.is/nano"><img src="https://s13.gifyu.com/images/SXln5.gif"></a>
+
 # Betnano | En İyi Canlı Casino & Slot Oyunları
 
 Betnano, online casino dünyasında öne çıkan bir platformdur. Betnano ile, kullanıcılar yüksek kaliteli canlı casino deneyimlerinin yanı sıra zengin slot oyun seçeneklerini de keşfetme fırsatı bulur. Güvenilir altyapısı ve kullanıcı dostu arayüzü ile eğlence dolu anlar sizi bekliyor.
